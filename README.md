@@ -1,2 +1,2 @@
 # trash2
-Our first repository псяяйхи нохяюмхе
+Our first repository псяяйхи нохяюмхе ПСЯЭ
